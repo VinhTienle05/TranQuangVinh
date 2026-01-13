@@ -8,4 +8,3 @@ Thông tin sinh viên
 - Tài khoản trello: https://trello.com/u/trnquangvinh34/boards
 
 
-Xin chào cả nhà!!!
